@@ -1,0 +1,1 @@
+# zeka-oyunlari-set-2-sinif-32
